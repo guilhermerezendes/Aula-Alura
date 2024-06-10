@@ -17,4 +17,4 @@ Guilherme Rezendes
 
 
 
-![](https://media1.tenor.com/m/Sk3ybYkV5AEAAAAC/sukuna-vs-gojo.gif)
+![](https://media1.tenor.com/m/7FgeOG0uKb0AAAAd/kawasin-kawashin4.gif)
