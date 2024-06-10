@@ -15,4 +15,4 @@ Guilherme Rezendes
  Como entrar em contato: 
  - 00001105573096sp@al.educacao.sp.gov.br
 
- <img src="https://media1.tenor.com/m/oC8CSq25wx4AAAAC/baby-yoda-welcome.gif" alt="Baby Yoda Welcome GIF - Baby Yoda Welcome GIFs"/>
+![](https://media1.tenor.com/m/Sk3ybYkV5AEAAAAC/sukuna-vs-gojo.gif)
