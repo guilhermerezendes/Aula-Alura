@@ -2,11 +2,11 @@
 
 Aulas de ínformatica escola Pedrina Pires Zadra 2024, série 3 ano A
 
-Guilherme
+Guilherme Rezendes
 
 - Estamos estudando programação, Java Script
 
-# Eu Guilherme nós momentos vagos que tenho gosto de jogar vôlei, jogar xadrez, assistir séries e filmes, resumindo gosto de manter minha mente ocupada sem forçala muito
+# Eu Guilherme nos momentos vagos que tenho gosto de jogar vôlei, jogar xadrez, assistir séries e filmes, resumindo gosto de manter minha mente ocupada sem forçala muito
 
 
  Você pode entrar em contato comigo para: 
